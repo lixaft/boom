@@ -1,2 +1,1 @@
-# boom
-💥💥💥 EXPLOOOSSIONNN 💥💥💥
+# boom!
